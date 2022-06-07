@@ -3,3 +3,5 @@ Winterfell, Warden of the North, Hand of the King, Protector of the Realm,
 Regent.  He is surely honorable and will lead a long and prosperous life.
 
 Ned messed around and found out, and he got killed by like, a twelve year old or something. Thats what happens when you get into other peoples business.
+
+Joffrey Baratheon was the one to do Ned in, but his story was only about to begin, and let me assure you he will DEFINITELY NOT DIE!
